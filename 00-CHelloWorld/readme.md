@@ -1,1 +1,1 @@
-
+Resolución
